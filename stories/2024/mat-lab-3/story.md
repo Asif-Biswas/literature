@@ -38,5 +38,4 @@ Hotspot connected successfully, can access internet, ChatGPT working.
 
 ---
 
-https://github.com/Asif-Biswas/literature/assets/62845684/3c5ba63c-d46a-4689-8bd1-e3442dc5fdba
 
