@@ -36,3 +36,7 @@ Hotspot connected successfully, can access internet, ChatGPT working.
 বাসায় যাচ্ছি আর ভাবছি, নিশ্চয় আমার প্রিয়তমা আজ মেসেজ দিয়ে Thanks বলবে। গতবছর ম্যাথ ল্যাব-২ এ এরচেয়ে কম হেল্প করছিলাম, তাও Thanks বলছিল। এবারও বলবে। 
 ওরা ৩-৪ টা মেয়ে এত ছেলেদের সামনে আমাকে Thanks বলছে, এটা একটা ছোট achievement. এর চেয়ে হাজার গুন বেশি বড় achievement যখন প্রিয়তমা আমাকে Thanks বলবে।
 
+---
+
+https://github.com/Asif-Biswas/literature/assets/62845684/3c5ba63c-d46a-4689-8bd1-e3442dc5fdba
+
